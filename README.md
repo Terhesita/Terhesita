@@ -5,7 +5,7 @@
 
 - 💬 Ponte en contacto conmigo
 
-- 📫 **teresitaonogre98@gmailcom**
+- 📫 **teresitaonofre98@gmailcom**
 
 - 📄 gresada hace más de seis meses me gusta colaborar en equipo y seguir obteniendo nuevos conocimientos
 
