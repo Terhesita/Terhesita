@@ -7,7 +7,7 @@
 
 - 📫 **teresitaonofre98@gmailcom**
 
-- 📄 gresada hace más de seis meses me gusta colaborar en equipo y seguir obteniendo nuevos conocimientos
+- 📄 Egresada hace más de seis meses me gusta colaborar en equipo y seguir obteniendo nuevos conocimientos
 
 <h3 align="left">También me encuentras en:</h3>
 <p align="left">
